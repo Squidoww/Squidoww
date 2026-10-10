@@ -8,5 +8,5 @@ $$ \color{#c26f30}{\text{Squiddo }} $$ $$ \color{#80400f}{\text{Rix }} $$ $$ \co
 
 $$\color{#c26f30}{\text{thankyou }}$$   https://github.com/pt-ship-nominations     $\color{#e8c982}{\text{inculding me }}$
 
- <div align="center">[Atabook](https://squiddos.atabook.org/)             [Straw](https://rixsintro.straw.page/)  
+<img width="93" height="93" alt="tumblr_ec46e6496831ce7216d48b485443a8ac_7e7b5234_100" src="https://github.com/user-attachments/assets/46ae3077-8c11-412b-8d3c-253666244c4f" /><div align="center">[Atabook](https://squiddos.atabook.org/)             [Straw](https://rixsintro.straw.page/)  
 
